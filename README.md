@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+- 🤔 A curious mind
+- 👯 I’m looking to collaborate on data-related project
+- 📫 Reach me at: linkedin.com/rizvandwiki
